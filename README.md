@@ -1,2 +1,2 @@
 # Panteon-Demo
-Gameplay Video: https://studio.youtube.com/video/kFrjcYvcJrE/edit
+Gameplay Video: https://youtu.be/kFrjcYvcJrE
